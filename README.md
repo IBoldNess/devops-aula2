@@ -1,3 +1,4 @@
 Brad Pitt
-Angelina Jolie
+Samuel L. Jackson
 Jason Momoa
+Halle Berry
